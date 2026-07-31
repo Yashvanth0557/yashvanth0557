@@ -1,4 +1,4 @@
-# Hi 👋, I'm Yashvanthkumar R.G
+# Hi 👋, I'm YASHVANTHKUMAR R.G
 
 ### Electrical & Electronics Engineering Undergraduate | Embedded Systems | EV Technology | Java Learner
 
