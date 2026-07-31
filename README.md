@@ -1,6 +1,6 @@
 # Hi 👋, I'm YASHVANTHKUMAR R.G
 
-### Electrical & Electronics Engineering Undergraduate | Embedded Systems | EV Technology | Java Learner
+### Electrical & Electronics Engineering graduate | Embedded Systems | EV Technology | Java Learner
 
 💡 Passionate about Electrical Engineering, Embedded Systems, Electric Vehicles, and Software Development.
 
